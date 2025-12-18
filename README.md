@@ -1,1 +1,1 @@
-# kumagai-github.io
+# fried-github.io
